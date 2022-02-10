@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bizzyasusual
+- 👋 Hi, I’m bizzy as usual
 - 👀 I’m interested in a lotta things
 - 🌱 I’m currently learning everything i need to know
 - 📫 How to reach me TELEGRAM @THELEARNINGHOBBIT
